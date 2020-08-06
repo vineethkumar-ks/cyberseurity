@@ -1,6 +1,6 @@
 ### Hi there, I'm Vineeth - aka Zephyr 👋
 
-## I'm a Husband, Father, Developer, and Teacher!
+## I'm a Student, and Developer !
 - 🔭 I’m currently studying [CYBERSECURITY][cisco]!
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other content creators
